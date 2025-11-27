@@ -5,4 +5,5 @@ Besides that, I spend my time trying to become a better guitarist (mainly jazz-f
 
 Want to check out my work? Check the links below:
 - [Instagram] [https://www.instagram.com/jordi.vrolijk.art/](https://www.instagram.com/jordi.vrolijk.art/)
-- [[ArtStation] https://jordi2518.artstation.com/
+- [ArtStation] https://jordi2518.artstation.com/
+- [ArtBlog] in progress
