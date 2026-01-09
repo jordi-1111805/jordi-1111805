@@ -1,9 +1,4 @@
 ## Hi, I'm Jordi
 
-I'm a CS student who likes to waste his precious time building stupid projects.
-Besides that, I spend my time trying to become a better guitarist (mainly jazz-focused) and working on personal art projects.
+I’m interested in tinkering with old gaming hardware and working at a low level, as far as my brain capacity will allow.
 
-Want to check out my work? Check the links below:
-- [Instagram] [https://www.instagram.com/jordi.vrolijk.art/](https://www.instagram.com/jordi.vrolijk.art/)
-- [ArtStation] https://jordi2518.artstation.com/
-- [ArtBlog] in progress
